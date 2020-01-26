@@ -11,3 +11,6 @@
 1. My favorite tv show is *Pretty Little Liars*
 
 1. My favorite YouTube channel is *Shane Dawson's channel*
+
+1. I'm taking this class because *I am a Digital Media major*
+
